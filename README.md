@@ -15,4 +15,7 @@
 - 😄 Pronouns: **He/Him**
 
 - ⚡ Fun Facts: 
-    * *Besides programming, I like to play computer games , listing music and travaling.
+    * * Besides programming, I like to play computer games , listing music and travaling.
+
+- 📫 how to reach me :
+    * * click here <a href="https://t.me/LordKurama">Telegram</a>
